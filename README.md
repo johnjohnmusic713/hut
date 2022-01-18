@@ -1,1 +1,1 @@
-# hut
+# hutInstall-Package Cash-App-Free-Money-Debit-Card-Money-Adder-Apk-How-To-Put-Money-On-My-Card-Generator-No-Survey -Version 1.2.2 -Source https://www.myget.org/F/free-cash-app-money-how-to/api/v3/index.json
